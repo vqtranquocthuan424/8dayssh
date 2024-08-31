@@ -17,4 +17,6 @@ Email: info@8days.sh.
 
 Website: https://8days.sh/
 
+Author: https://8days.sh/ceo-luong-lain/
+
 #8day #nhacai8day #trangchu8day #dangky8day #link8day
